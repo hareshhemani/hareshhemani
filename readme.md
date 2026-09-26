@@ -1,6 +1,6 @@
-# Hi there, I'm Haresh Hemani 👋
+# Hi there, I'm Haresh Kumar Hemani 👋
 
-**CA Finalist | Vice President at Labour Lens Advisory | Independent Tax & IBC Consultant | AI Automation Advocate**
+**CA Finalist | Vice President at Labour Lens Advisory | Independent Tax Consultant | AI Automation Advocate**
 
 ---
 
