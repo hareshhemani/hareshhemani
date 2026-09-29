@@ -32,7 +32,6 @@ Experienced Finance & Taxation Professional with over **13+ years of core practi
 
 * 💼 **Vice President** at **Labour Lens Advisory Private Limited**
 * 🏛️ **Independent Tax Consultant** specializing in Direct & Indirect Taxation (Income Tax & GST)
-* ⚖️ **Insolvency Tax Compliance Specialist** assisting IBBI-registered Insolvency Professionals (IRP/RP) under IBC
 * 🎓 **CA Finalist** (ICAI) | **B.Com** (Pt. Ravishankar Shukla University)
 * 🤖 Enthusiastic about **AI Automation**, software tools, and optimizing corporate compliance workflows
 * 📍 Based in **Raipur, Chhattisgarh, India**
